@@ -1,1 +1,0 @@
-# Sinjini-s-ChatApp
